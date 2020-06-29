@@ -6,3 +6,7 @@ Colaborative robot is a novel topic  for industry 4.0
 
 
 
+# Youtube
+
+https://www.youtube.com/channel/UCLNRSxHcYEYA_3b8WmVq7Cg/videos
+
